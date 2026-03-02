@@ -6,4 +6,4 @@
 
 🍿 Fun facts - W1THRD originally gave  IdiotNet it's name because it's security was idiotic- there was no security.
 
-🤓 Contact - We should probably get one of those newfangled emails....
+🤓 Contact - We should probably get one of those newfangled emails.... (what if we got some kind of... "email guy" for that)
